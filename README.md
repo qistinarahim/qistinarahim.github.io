@@ -1,1 +1,0 @@
-# qistinarahim.github.io
